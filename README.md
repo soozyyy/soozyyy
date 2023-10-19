@@ -3,6 +3,6 @@
 
 - ⚡ Click this: [https://youtu.be/dQw4w9WgXcQ?si=5oX2fso8zf2JpnDW](https://youtu.be/dQw4w9WgXcQ?si=5oX2fso8zf2JpnDW)
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
